@@ -24,7 +24,7 @@ I've therefore founded what might be considered the unofficial (and unarmed) par
 
 [Naming things is hard](https://martinfowler.com/bliki/TwoHardThings.html). For now, "A Life for a Lie" will suffice.
 
-This name does not imply a threat: it is simply an assertion that the lies of you and your cohort - about austerity, immigration,
+This name does not imply a threat: it is simply an assertion that the lies of you and your cohort - about austerity, immigration, 
 the European Union, climate change, the risible pretence that you give a trillionth of a fuck about anyone beyond yourself (and maybe 
 your donors and immediate social circle); about everything, frankly - have consequences. Your lies are responsible for countless deaths 
 and damaged lives. With countless more to come. Unless we stop you. Until we stop you.
