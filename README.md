@@ -11,18 +11,18 @@ amusing to reflect that Beethoven's genius astonishes and inspires two centuries
 sociopathic herpetic humpsack who'll be burned in effigy for a generation or two and then forgotten.)
 
 It looks like your party - that malignancy of spivs, ideologues, racists, lickspittles and demented finger-jabbers - will receive 
-about 45% of the vote and be rewarded with 55% of the seats.
+about 45% of the vote and be rewarded with roughly 55% of the seats.
 
 In no meaningful sense can this be considered democratic (even in these semanticidal times). Your claims to a mandate are a bluff. 
 Your government is illegitimate.
 
 The Electoral Reform Society was founded in 1884. Without wishing to disparage their efforts and achievements over the last 135 
-years, many of us remain effectively disenfranchised. Meanwhile, you flirt with fascism as the world rushes wilfully towards 
+years, many of us remain effectively disenfranchised. Meanwhile, you flirt with fascism - and the world rushes wilfully towards 
 environmental catastrophe.
 
 I've therefore founded what might be considered the unofficial (and unarmed) paramilitary wing of the Electoral Reform Society. 
 
-[Naming things is hard|https://martinfowler.com/bliki/TwoHardThings.html]. For now, "A Life for a Lie" will suffice.
+[Naming things is hard](https://martinfowler.com/bliki/TwoHardThings.html). For now, "A Life for a Lie" will suffice.
 
 This name does not imply a threat: it is simply an assertion that the lies of you and your cohort - about austerity, immigration,
 the European Union, climate change, the risible pretence that you give a trillionth of a fuck about anyone beyond yourself (and maybe 
@@ -53,6 +53,6 @@ choice between allowing you to affect our lives and, I dunno, sticking forks in 
 We will fight. And we will defeat you - "and all the Caesars to come", as Bill Fay put it - because you have nothing to offer besides 
 fear and lies.
 
-We are capable of caring about something other than ourselves. Even you.
+We are all capable of caring about something other than ourselves. Even you.
 
 Do you still believe that a life for a lie is a price worth paying?
