@@ -43,7 +43,7 @@ Know this: we understand that collective self-defence is not only our right; it 
 children are poisoned by air pollution; when you attempt to neuter the judiciary; when you drive the vulnerable and disabled further 
 into destitution and despair; when you destroy the NHS; when you sell weapons to war criminals and invite murderers and rapists to state 
 banquets; when you undermine the idea of public service, of a humanity beyond mere cladistics - when you do these things, whenever your 
-abuses of power threaten the wellbeing of others, they will be (as Frederick Douglass put it) "resisted with either words, or blows, 
+abuses of power threaten the wellbeing of others, they will be (to quote Frederick Douglass) "resisted with either words, or blows, 
 or both".
 
 Please rest assured that we do understand your profound insecurities. It's just that given the choice between allowing them to affect 
