@@ -20,7 +20,7 @@ The Electoral Reform Society was founded in 1884. Without wishing to disparage t
 years, many of us remain effectively disenfranchised. Meanwhile, you flirt with fascism as the world rushes wilfully towards 
 environmental catastophe.
 
-I suggest the foundation of what might be considered the unofficial paramilitary wing of the Electoral Reform Society.
+I've therefore founded what might be considered the unofficial paramilitary wing of the Electoral Reform Society.
 
 Naming things is hard. For now, "A Life for a Lie" will suffice.
 
