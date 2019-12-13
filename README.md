@@ -8,7 +8,7 @@ pressure waves only to say nothing worth hearing. I've decided to listen to Stev
 
 (I mention this for two reasons: as a defiant reminder of the many beautiful things you'll never take from us; and because I find it 
 amusing to reflect that Beethoven's genius astonishes and inspires two centuries later - whereas you are a mendacious, narcissistic, 
-sociopathic herpetic humpsack who'll be burned in effigy for a generation or two and then forgotten.)
+sociopathic, herpetic humpsack who'll be burned in effigy for a generation or two and then forgotten.)
 
 It looks like your party - that malignancy of spivs, ideologues, racists, lickspittles and demented finger-jabbers - will receive 
 about 45% of the vote and be rewarded with roughly 55% of the seats.
