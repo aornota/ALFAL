@@ -3,14 +3,14 @@
 _Friday 13th December, 2019_
 
 I write this with half an eye on the BBC's election results coverage as a litany of delusion is recited across a dischoate nation. 
-I've muted the coverage: it heightens the irony of aeons of evolution produing creatures capable of shaping intricate pressure waves 
+I've muted the coverage: it heightens the irony of aeons of evolution producing creatures capable of shaping intricate pressure waves 
 in air only to say nothing worth hearing. I've decided to listen to Steven Osborne playing Beethoven's _Hammerklavier_ sonata instead.
 
 (I mention this for two reasons: as a defiant reminder of the many beautiful things you'll never take from us; and because I find it 
 amusing to reflect that Beethoven's genius delights and inspires two centuries later, whereas you are a mendacious, narcissistic, 
 sociopathic sack of herpes who'll be burned in effigy for a generation or two and then forgotten.)
 
-It looks like your party - that malignancy of spivs, idealogues, racists, lickspittles and demented finger-jabbers - will receive 
+It looks like your party - that malignancy of spivs, ideologues, racists, lickspittles and demented finger-jabbers - will receive 
 about 45% of the vote and be rewarded with 55% of the seats.
 
 In no meaningful sense can this be considered democratic (even in these semanticidal times). Your claims to a mandate are a bluff. 
@@ -18,7 +18,7 @@ Your government is illegitimate.
 
 The Electoral Reform Society was founded in 1884. Without wishing to disparage their efforts and achievements over the last 135 
 years, many of us remain effectively disenfranchised. Meanwhile, you flirt with fascism as the world rushes wilfully towards 
-environmental catastophe.
+environmental catastrophe.
 
 I've therefore founded what might be considered the unofficial paramilitary wing of the Electoral Reform Society.
 
@@ -49,7 +49,7 @@ or both".
 Please rest assured that we do understand your profound insecurities. It's just that given the choice between allowing them to affect 
 our lives and sticking forks in your eyes, the common good is pointing forkwards.
 
-We will fight. And we will defeat you - "and all the Caesers to come", as Bill Fay put it - because you have nothing to offer besides 
+We will fight. And we will defeat you - "and all the Caesars to come", as Bill Fay put it - because you have nothing to offer besides 
 fear and lies.
 
 Do you still believe that a life for a lie is a price worth paying?
