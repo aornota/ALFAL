@@ -1,4 +1,4 @@
-##### An open letter to the "Prime Minister" (and his enablers)
+### An open letter to the "Prime Minister" (and his enablers)
 
 _Friday 13th December, 2019_
 
